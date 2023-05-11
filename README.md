@@ -11,5 +11,5 @@ images/10553622_850320648313829_3654757502924956106_n.jpg
 ![alt text](https://github.com/shalvart/textreasure/blob/main/images/10553622_850320648313829_3654757502924956106_n.jpg)
 
 
-![alt text](https://github.com/shalvart/textreasure/blob/main/images/10553622_850320648313829_3654757502924956106_n.jpg)
+![alt text](https://github.com/shalvart/textreasure/blob/main/images/11693932_1032847513394474_8712967719272641459_n%202%202.jpeg)
 
